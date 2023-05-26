@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns:
 - ⚡ Fun fact: ...
 -->
-📫 How to reach me: www.hemantaphuyal.com.np
-😄 Pronouns: he/him
+- 📫 How to reach me: www.hemantaphuyal.com.np
+- 😄 Pronouns: he/him
